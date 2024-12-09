@@ -1,0 +1,2 @@
+# Pol-tica-
+Democrático 
